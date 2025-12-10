@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Coding, MMA**
 
-- 📫 How to reach me **mark@markfehrenbach.me**
+- 📫 How to reach me **fehrenbachmark@gmail.com**
 
 - ⚡ Fun fact **I like toitles**
 
